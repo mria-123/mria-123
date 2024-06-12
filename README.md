@@ -1,4 +1,4 @@
-Boas vindas ao meu perfil 💙💙
+**Boas vindas ao meu perfil 💙💙**
 
 Meu nome é Maria Eduarda Freitas Guimaräes
 
@@ -10,7 +10,7 @@ Meu nome é Maria Eduarda Freitas Guimaräes
 
 
 
-Você pode entrar em contato comigo 📫
+**Você pode entrar em contato comigo 📫**
 
 00001081286283sp@al.educacao.sp.gov.br
 
